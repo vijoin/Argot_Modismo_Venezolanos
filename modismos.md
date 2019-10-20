@@ -1,5 +1,5 @@
 ## ¿Cómo está la vaina?
-Inserte aqui su explicacion
+Tiene el mismo significado que la pregunta:"Como estas".
 
 ## Dar/Pedir la cola
 Inserte aqui su explicacion
